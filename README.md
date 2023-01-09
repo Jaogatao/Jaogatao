@@ -1,4 +1,4 @@
-## Seja Bem-vindo, Terraquéo !  Sou João Antônio e apresento aqui meu perfil
+## Seja Bem-vindo, Terráqueo !  Sou João Antônio e apresento aqui meu perfil
 
 
 
