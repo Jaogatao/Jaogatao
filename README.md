@@ -2,7 +2,8 @@
 
 
 
-- 🔭 *Eu atualmente faço freelancer.*
+- 🔭 *Eu atualmente faço freelancer na área de T.I*
+- 🏍 *Jovem Aprendiz na Honda*
 - 🌱 *Costumo estudar tecnologias e aprender novos hábitos*
 - 👯 *Eu procuro colaborar com meu conhecimento e minhas habilidades*
 
