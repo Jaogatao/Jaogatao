@@ -3,7 +3,7 @@
 
 
 - 🔭 *Eu atualmente faço freelancer na área de T.I*
-- 🏍 *Jovem Aprendiz na Honda*
+- 🏍 *Designer e Desenvolvedor da Honda*
 - 🌱 *Costumo estudar tecnologias e aprender novos hábitos*
 - 👯 *Eu procuro colaborar com meu conhecimento e minhas habilidades*
 
